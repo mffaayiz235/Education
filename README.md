@@ -1,2 +1,2 @@
 # Education-system-
-Studying 
+one credit Course knowledge 
